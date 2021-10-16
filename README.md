@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @SuyogKhanal5
+- 📕 Student at Rutgers University
 - 📫 Email me at suyogkhanal@outlook.com for anything
 
 <!---
